@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+This is my insta i'd!.[Chetanvempalli](https://instagram.com/chill_ra_chaitu?utm_medium=copy_link)
